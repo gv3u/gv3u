@@ -2,6 +2,12 @@
 Hi there. This is just an update on how I'm doing and where I want to go from here.  
 I'm so glad I finally wrote this document and made some updates. This took so much out of me.
 
+## 3/27/22 Update:
+Please read my Roblox description.  
+I know this isn't the best way to post updates, but I don't really have a good solution for this.  
+
+Also, I've considered reactivating my old Discord account and talking on the CollabVM Discord. I don't want to do that right now, if at all, but I'm just letting you guys know that I've been thinking about it.
+
 ## How I'm doing.
 I'm doing terrible. I've had a depression at the beginning of 2021 because of all the horrible actions I've taken, but I guess it's slowly going away now since I'm more active on Roblox.  
 I kept comparing myself to YandereDev, where I associated myself with writing bad code and generally being an unlikeable person.  
