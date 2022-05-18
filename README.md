@@ -19,7 +19,7 @@ And now, I have these thoughts that I can't deal with.
 * "That's easy! I can do that very easily!"
 * "I'm better than that person."
 
-Those thoughts happened recently. I've called them "cocky thoughts". I've had other thoughts too, but I don't want to discuss those.    
+Those thoughts happened recently. I've had other thoughts too, but I don't want to discuss those.    
 
 I keep forgetting why I'm horrible. I know this is a problem, but I haven't done anything about it. This is why I was sad and felt horrible, because of everything I've done up to this point. I've hurt and insulted so many people, and I keep doing it, but I can't stop, no matter how hard I try.
 
